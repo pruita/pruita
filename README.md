@@ -14,5 +14,5 @@
 
  [byi](https://rentry.co/geritapan)  ⠀ [pt info](https://rentry.co/chibitalias) ⠀  [ata](https://pruita.atabook.org/)
 
-  $\color{#E4D677}{\textsf{i love nagae ryoki }}$	
+  $\color{#E4D677}{\textsf{i love ryoki nagae }}$	
   
