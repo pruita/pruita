@@ -11,3 +11,5 @@
  $\color{#E4D677}{\textsf{ (s)he / it ⠀ North Italy introject }}$	
 
  [byi](https://rentry.co/geritapan)  ⠀ [pt info](https://rentry.co/chibitalias) ⠀  [ata](https://pruita.atabook.org/)
+
+  $\color{#E4D677}{\textsf{i love nagae ryoki }}$	
