@@ -16,3 +16,4 @@
 
   $\color{#E4D677}{\textsf{i love ryoki nagae }}$	
   
+  $\color{#E4D677}{\textsf{please be nice 2 me ;-; }}$	
