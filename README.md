@@ -17,4 +17,8 @@
   $\color{#E4D677}{\textsf{i love ryoki nagae }}$	
     $\color{#E4D677}{\textsf{please be nice 2 me ;-; i hate rude people }}$	
 
+    
+i do not appreciate being unadded randomly 
+and i prefer to be told beforehand you dont
+want to be friends with me thanksss
  READ MY TROPES READ IT!!!!!!!!!!!!!!!!!!! [TROPES RENTRY PAGE LINK HERE](https://rentry.co/rosemilovelock)
