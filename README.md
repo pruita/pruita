@@ -11,7 +11,7 @@ These jokes are insensitive; they should not even be labeled AS jokes. These "jo
 
 Please please PLEASE !! Push all the support you can towards those who are being harmed and killed, we cannot let this be silent. Speak up; every voice counts. 
 
-🇵🇸🇸🇩🇨🇩🇱🇧🇲🇲
+
 
 [Immigrant Info and resources google doc](https://docs.google.com/document/d/1-0r_TmPHhrtUhaoCh1rwsXZ9oASl1RK_kV_oF3nxlD0/mobilebasic?safe=active) 
 
