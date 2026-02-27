@@ -16,7 +16,7 @@ Please please PLEASE !! Push all the support you can towards those who are being
 [Immigrant Info and resources google doc](https://docs.google.com/document/d/1-0r_TmPHhrtUhaoCh1rwsXZ9oASl1RK_kV_oF3nxlD0/mobilebasic?safe=active) 
 
 
-**Rafah Has been completely flattened. So much history from as far back as 3500 years ago has been LOST because of Israel. Millions of innocent Children, Women, and Men have been MURDERED in cold blood, and displaced. If you think in any way "Israel" is something to joke about; please, rethink. By joking about israel you are not ONLY not showing active support to Palestine but you are ALSO encouraging others to joke about israel instead of sharing USEFUL resources, donating to gofund mes. The lack of empathy people have until its happening to them baffles me. Support Palestine, and all the other countries being opressed, genocided, ethnically clensed.**
+**Rafah Has been completely flattened. So much history from as far back as 3500 years ago, has been LOST because of Israel. Millions of innocent Children, Women, and Men have been MURDERED in cold blood, and displaced. If you think in any way "Israel" is something to joke about; please, rethink. By joking about israel you are not ONLY not showing active support to Palestine but you are ALSO encouraging others to joke about israel instead of sharing USEFUL resources, donating to gofund mes. The lack of empathy people have until its happening to them baffles me. Support Palestine, and all the other countries being opressed, genocided, ethnically clensed.**
 
 
 If you have any resources, information or gofund mes you would like me to add to this message me on [ata](https://pruita.atabook.org/) or [his ata](https://USA.atabook.org/)
